@@ -28,4 +28,3 @@
 ## 🔗 Me contacter / Suivre mon parcours :
 
 - [LinkedIn – Fabien Rousseau](https://www.linkedin.com/in/fabien-rousseau-8a73a21b5)
-- 📧 Email dispo en MP LinkedIn
